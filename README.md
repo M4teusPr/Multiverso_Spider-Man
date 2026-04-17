@@ -67,7 +67,7 @@ Obrigado à **DIO** por incentivar o aprendizado prático e acessível na área 
 
 ## 📷 Preview
 
-https://github.com/M4teusPr/Multiverso_Spider-Man
+[https://github.com/M4teusPr/Multiverso_Spider-Man](https://www.linkedin.com/feed/update/urn:li:activity:7404528386754170880/?originTrackingId=keh01NFPhvTbxxzRlaku8Q%3D%3D)
 ---
 
 ## 📄 Licença
